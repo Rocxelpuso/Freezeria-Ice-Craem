@@ -1,1 +1,1 @@
-# Freezeria-Ice-Craem
+# Freezeria-Ice-Cream
